@@ -1,5 +1,5 @@
 
-History_of_Statics :
+History_of_Statics : :blush:
 
 	This web page is tribute to Mr.S.N.Bose.
 
